@@ -1,1 +1,3 @@
 # chat_ai
+
+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
